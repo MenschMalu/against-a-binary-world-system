@@ -17,5 +17,5 @@ Sources:
 -	Butler, Judith. Gender trouble: Feminism and the Subversion of Identity. New York: Routledge, 1990.
 -	Barker, Mag-John and Iantaffi, Alex. Life isn’t binary: on being both, beyond, and in-between. London and Philadelphia: Jessica Kingsley Publishers, 2019.
 -	Scobel, Gert. So hilft uns indigenes Wissen [online] https://www.youtube.com/watch?v=4UaMpvfsOOY [accesed on 23.01.2024]
--	Miller, Brilliant. Sand Talk: Changing the World through Indigenous Knowledge with Tyson Yunkaporta [online] https://www.youtube.com/watch?v=JCzlgBbv5OY [accesed on 23.01.2024]
+-	Miller, Brilliant. Sand Talk: Changing the World through Indigenous Knowledge with Tyson Yunkaporta [online] https://www.youtube.com/watch?v=JCzlgBbv5OY [accesed on 23.01.2024]</font>
 
